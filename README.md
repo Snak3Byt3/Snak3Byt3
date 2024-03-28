@@ -4,7 +4,7 @@
 - 💞️ I’m looking for internship opportunities to gain work experience and financial stability
 - 📫 How to reach me: https://discordapp.com/users/986648388525236256/
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I have better social interactions when talking about a topic I'm interested in!
+- ⚡ Fun fact: I am Brazilian, but I prefer to speak in English, since I am more skilled in speaking English than in speaking Portuguese.
 
 <!---
 Snak3Byt3/Snak3Byt3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
